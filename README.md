@@ -1,1 +1,1 @@
-# ws_zzy.github.io
+# zzy.github.io
